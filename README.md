@@ -12,3 +12,5 @@ Keep moving forward, finish the project on udemy!!
 
 keep your heads high.
 and your confidence
+
+show the willingness to learn
