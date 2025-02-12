@@ -14,3 +14,4 @@ keep your heads high.
 and your confidence
 
 show the willingness to learn
+be yourself.
