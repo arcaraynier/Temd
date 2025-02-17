@@ -19,3 +19,5 @@ be yourself.
 Show the passion that you wanted to take.
 
 Gradual
+
+In time.
