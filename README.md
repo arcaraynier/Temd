@@ -1,7 +1,7 @@
 # Temd
 practice project
 
-calculator <br>
+calculator <br> .
 minisweep <br>
 spotify
 airport website
