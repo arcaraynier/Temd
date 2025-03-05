@@ -3,7 +3,7 @@ practice project
 
 calculator <br> .
 minisweep <br>
-spotify
+spotify ee
 airport website
 coffee website project
 perfume website we
