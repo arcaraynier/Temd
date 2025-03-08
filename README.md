@@ -15,6 +15,7 @@ and your confidence
 
 show the willingness to learn
 be yourself.
+qq
 
 Show the passion that you wanted to take.
 
