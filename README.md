@@ -29,3 +29,5 @@ Hi self, you're now recovering from stresses, anxiety and difficulties, face you
 Hi self, you have a lot of interview coming in, yesterday you had your first report on concentrix you met with a lot of people. si renz and geffry
 
 hey
+
+sigh
