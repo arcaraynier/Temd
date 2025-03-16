@@ -5,7 +5,7 @@ calculator <br> .
 minisweep <br>
 spotify ee
 airport website
-coffee website project q
+coffee website project q e
 perfume website we
 
 Keep moving forward, finish the project on udemy!!
