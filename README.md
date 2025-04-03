@@ -15,7 +15,7 @@ and your confidence
 
 show the willingness to learn
 be yourself.
-qq
+qqbb
 
 Show the passion that you wanted to take.
 mh
