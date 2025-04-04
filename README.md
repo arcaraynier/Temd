@@ -36,3 +36,6 @@ March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wis
 March 20, 2025
 
 April 2, 2026
+
+April 4, 2025 - Baw nag asset deployment kami kay ana veronica amaca QA quality analyst nga taga calinog, pag abot ya may duha sa ya  ka monitor dala, bale e return asset ya ya gali. hays. didto na naconfuse.
+April 5, 2025 - 
