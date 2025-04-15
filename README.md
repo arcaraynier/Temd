@@ -11,7 +11,7 @@ xceawesd
 Keep moving forward, finish the project on udemy!!ee
 
 keep your heads high.ee
-and your confidence
+and your confidenceb
 
 show the willingness to learn
 be yourself.
