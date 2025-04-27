@@ -15,7 +15,7 @@ and your confidenceb.
 
 show the willingness to learn
 be yourself..
-qqbb
+qqbb.
 
 Show the passion that you wanted to take.
 mhja.
